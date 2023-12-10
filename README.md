@@ -10,6 +10,6 @@ Meu nome é Drayton Teles
 
 telesdrayton7@gmail.com
 
-É simples, mas o trabalho que mais me orgulho é o seguinte > ![Scratch](https://scratch.mit.edu/projects/886742023/)
+É simples, mas o trabalho que mais me orgulho é o seguinte > [Scratch](https://scratch.mit.edu/projects/886742023/)
 
 ![]( https://media.tenor.com/caoTdYrVWb0AAAAd/sonic-movie2-dr-robotnik.gif )
